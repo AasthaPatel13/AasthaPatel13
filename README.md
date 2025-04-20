@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AasthaPatel13
-- 👀 I’m interested in ... creative thinking, fashion knowledge 
+- 👀 I’m interested in ... creative thinking, fashion knowledge, trying new things, exploring places
 - 🌱 I’m currently learning ... basic Italian,c++
-- 💞️ I’m looking to collaborate on ... website design,
+- 💞️ I’m looking to collaborate on ... website design, wanted to try new things 
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
